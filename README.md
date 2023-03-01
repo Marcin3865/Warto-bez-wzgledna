@@ -1,0 +1,1 @@
+# Warto-bez-wzgledna
